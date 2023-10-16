@@ -1,2 +1,2 @@
 -Github 2fa is not working so this account is disabled....
-Thanks for being a piece of shit github!
+Thanks github!
